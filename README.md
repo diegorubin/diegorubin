@@ -1,2 +1,2 @@
 
-![My Profile](https://profile.diegorubin.dev/?v=43)
+![My Profile](https://profile.diegorubin.dev/?v=44)
